@@ -1,2 +1,2 @@
 # Stable version
-## Hotfix
+## Hotfix ( ͡° ͜ʖ ͡°)
